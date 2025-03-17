@@ -1,6 +1,6 @@
 - 👋 Hi, I’m 吃瓜无止尽 黑料不打烊 的 红领巾瓜报 改版为 911爆料网
-- 👀 911爆料最新地址（03/09更新）
-- 🌱 免翻墙入口：[hljcg11.com](https://hljcg11.com)<br>
+- 👀 911爆料最新地址（03/17更新）
+- 🌱 免翻墙入口：[hljcg13.com](https://hljcg13.com)<br>
 - 💞️ 备用入口：[https://hljcg12.com](https://hljcg12.com)<br>
 - 📫 永久回家地址：[911blw.com](https://911blw.com)<br>
 - 😄 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
@@ -8,6 +8,14 @@
      官方推特：https://twitter.com/911bl22<br>
 
      新地址获取方法： 发送任意内容至 911blcgw@gmail.com
+
+备用链接：
+https://fsde.gjymuls.com
+https://tmekdj2a.gjymuls.com
+https://tenta.ojxzibyk.com
+https://appler.ojxzibyk.com
+https://zdf6.bbhwpyz.xyz
+https://lreb6.jrgtil.com
 
 
 <!---
